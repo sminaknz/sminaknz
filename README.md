@@ -1,0 +1,1 @@
+# sminaknz.github.io
